@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Mark0602
+- 👀 I’m interested in coding, maths, physics and music composing.
+- 🌱 I’m currently learning electronics.
+- 📫 Contact me on Discord: Marck#1515
